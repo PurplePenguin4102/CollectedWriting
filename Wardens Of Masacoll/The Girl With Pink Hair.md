@@ -1,4 +1,4 @@
-The Girl With Pink Hair
+# The Girl With Pink Hair
 
 A moment of silence was punctuated by the sounds of bated breathing and a small cough. Underneath the amber glow of candlelight and elevated slightly by a sole wooden platform, Clara stood in motionless tension. Her pink hair flowing in bows and troughs of angelhair down to her waistline, her usual garb had been replaced by her more flambouyant harlequin striped troubadour outfit. She was alone on that stage, the pressure of performance pushing down on her slender shoulders until she wanted to break. Her eyes sewn shut from nervousness, she projected herself out to the tavern audience that watched her in silence. How silly she must look. How she would mess up the notes. How awkwardly she stood. She desperately fought these feelings down as she raised with a trembling hand her violin to her chin and clenched her jaw. The din of the tavern that was previously a deafening roar of boisterous laughter and flirtations had silenced until a mouse would be too embarrassed to squeak.
 
