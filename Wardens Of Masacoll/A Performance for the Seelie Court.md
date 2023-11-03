@@ -62,10 +62,13 @@ Jealous eyes to Meilin were lured
 And down to the floor went they after blows;"`
 
 
->"Fiercely we danced, and merrily we jigged_
->And to Ashnar a man was sent_
->But old Julius had his plans zigged_
->And that man found his toes... quite bent;"_
+>"Fiercely we danced, and merrily we jigged
+>
+>And to Ashnar a man was sent
+>
+>But old Julius had his plans zigged
+>
+>And that man found his toes... quite bent;"
 
 Clara nodded assertively. As she spoke the rhymes, the magic of the feywild showed images above her head of Ashnar purposefully stomping on her dancing partner. As well as the magical dance between Meilin and Willem Gylden.
 
