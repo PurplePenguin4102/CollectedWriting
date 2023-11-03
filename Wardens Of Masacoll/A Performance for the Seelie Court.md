@@ -56,10 +56,13 @@ A snortle came from an elderly eladrin man to her right, and Clara smiled to him
 
 Clara went silent for a moment, and there was a heaviness to the air as her thoughts ordered the events of the evening. Feeling the wonderous magic of the feywild around her, limericks and poetry swam through her head. Sonnets and ballads, songs of triumph, loss and woe. fey performances were beautiful, and heavily improvised. Even though it was her first time doing such a thing, the magic of the realm around her bolstered her oration, and gave her an unnatural calm as she spoke of the wardens of Masacoll.
 
-`"The night was filled with love and venture
-Hearts drew near as the prince's love drew close
-Jealous eyes to Meilin were lured
-And down to the floor went they after blows;"`
+>"The night was filled with love and venture
+>
+>Hearts drew near as the prince's love drew close
+>
+>Jealous eyes to Meilin were lured
+>
+>And down to the floor went they after blows;"
 
 
 >"Fiercely we danced, and merrily we jigged
@@ -72,41 +75,41 @@ And down to the floor went they after blows;"`
 
 Clara nodded assertively. As she spoke the rhymes, the magic of the feywild showed images above her head of Ashnar purposefully stomping on her dancing partner. As well as the magical dance between Meilin and Willem Gylden.
 
-_"Up from the sky the blue woman came_
+>"Up from the sky the blue woman came
+>
+>Down to the earth the Fell creature crashed
+>
+>Into his chest the trident was aimed
+>
+>But dead he was not, despite his gash;"
 
-_Down to the earth the Fell creature crashed_
 
-_Into his chest the trident was aimed_
-
-_But dead he was not, despite his gash;"_
-
-
-_"Summon did he, more guests for us_
-
-_Dance did we, for jollity was the law_
-
-_With smiles and mirth, in their hearts we thrust_
-
-_Zombies, brutes, and a mighty Tyrannosaur;"_
+>"Summon did he, more guests for us
+>
+>Dance did we, for jollity was the law
+>
+>With smiles and mirth, in their hearts we thrust
+>
+>Zombies, brutes, and a mighty Tyrannosaur;"
 
 Distorted images of battle surrounded her. The terrible battle they fought against the zombies and Ben GoldBleed. Clara's face twisted in worry, despite the rhyme being "smiles and mirth" guards were slain left and right. Marcus was shown sprinting desperately to save Karl, stabbing his dagger into the undead over, and over again. A bleak look on their faces.
 
-_"We thought him cold, so we warmed him up,_
+>"We thought him cold, so we warmed him up,
+>
+>With magic, spells and slings we played
+>
+>A fire so bright it filled our cup
+>
+>With our own Reytarn forming a blockade;"
 
-_With magic, spells and slings we played_
 
-_A fire so bright it filled our cup_
-
-_With our own Reytarn forming a blockade;"_
-
-
-_"O what friends we made, in battle most fair_
-
-_O what joy we felt as we danced our souls away_
-
-_Out, the lizard went to the square_
-
-_With bits of a mentor's shoulder, always time to play!"_
+>"O what friends we made, in battle most fair
+>
+>O what joy we felt as we danced our souls away
+>
+>Out, the lizard went to the square
+>
+>With bits of a mentor's shoulder, always time to play!"
 
 Images of Reytarn's fierce struggle against the titanic dinosaur, the T-Rex taking a chunk of the monk's shoulder. Tiv's ingenious plan to immolate the beast, and Clara's desperate, tearful pleading to try and get the frightened animal to safety. Britt's final plea to Reytarn as the beast crashed through to the courtyard. Clara's breathless cries of fury as she shot eldritch magic at the foul undead.
 
