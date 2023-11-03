@@ -113,69 +113,69 @@ Distorted images of battle surrounded her. The terrible battle they fought again
 
 Images of Reytarn's fierce struggle against the titanic dinosaur, the T-Rex taking a chunk of the monk's shoulder. Tiv's ingenious plan to immolate the beast, and Clara's desperate, tearful pleading to try and get the frightened animal to safety. Britt's final plea to Reytarn as the beast crashed through to the courtyard. Clara's breathless cries of fury as she shot eldritch magic at the foul undead.
 
-_"Alas, alas, it was time to go_
-
-_And to other houses we went_
-
-_To spread the host's party favo'_
-
-_To the Goldbleeds were we sent;"_
-
-
-_"Marcus did Julius betray_
-
-_A prank most lively and boisterous_
-
-_For love did Karl take Marcus his way_
-
-_Their fun would be so Roisterous;"_
+>"Alas, alas, it was time to go
+>
+>And to other houses we went
+>
+>To spread the host's party favo'
+>
+>To the Goldbleeds were we sent;"
 
 
-_"Some guests we found_
+>"Marcus did Julius betray
+>
+>A prank most lively and boisterous
+>
+>For love did Karl take Marcus his way
+>
+>Their fun would be so Roisterous;"
 
-_Their carriage warm and golden_
 
-_They belong now to the Burial Ground_
-
-_To their coffins we were beholden;"_
+>"Some guests we found
+>
+>Their carriage warm and golden
+>
+>They belong now to the Burial Ground
+>
+>To their coffins we were beholden;"
 
 The aftermath of the party. Arguments with Julius, Clara's frustration and repressed rage. The tearful faces of the frightened guests, and the panic that was on everyone's expression. The clear fatigue that was on Lady Esmerelda's face. Marcus taken in shackles despite committing no crime. The grim adventurers rushing to the next scene, only to be confronted with the burning corpses inside the carriage, desperately struggling to aid the one survivor.
 
-_"The Celestes must have been quite cold_
-
-_For their party they had all together decided_
-
-_To set fire to their whole damn household!_
-
-_Perhaps their plan was a... touch misguided?"_
+>"The Celestes must have been quite cold
+>
+>For their party they had all together decided
+>
+>To set fire to their whole damn household!
+>
+>Perhaps their plan was a... touch misguided?"
 
 Clara laughed, and the fey court all joined her uproariously as gruesome images of the thirty dead bodies hung over her head. The desperate struggle to save who they could. Tiv's masterful plan to burst the water pipes. Clara's clear look of fear and distress as she coughed in the smoke filled building. Following Britt's lead as they made their way through the maze of death.
 
-_"And all this was ere I met_
-
-_my guard in rusted armour_
-
-_Alfonse Chadwet_
-
-_Fell did I, for that little charmer;"_
-
-
-_"And so with the household all dead_
-
-_On we went to the Goldbleed's manse_
-
-_Alas! They too were dead_
-
-_What rotten luck! How low the chance!"_
+>"And all this was ere I met
+>
+>my guard in rusted armour
+>
+>Alfonse Chadwet
+>
+>Fell did I, for that little charmer;"
 
 
-_"With the moon hanging low_
+>"And so with the household all dead
+>
+>On we went to the Goldbleed's manse
+>
+>Alas! They too were dead
+>
+>What rotten luck! How low the chance!"
 
-_My friends gathered around me_
 
-_To home we did go_
-
-_Speaking fondly of this night of merry."_
+>"With the moon hanging low
+>
+>My friends gathered around me
+>
+>To home we did go
+>
+>Speaking fondly of this night of merry."
 
 The final images circled through. The aftermath of the fire at the Celeste's. The expression on Clara's face when she realised they may be targeting noble houses. Brittney's worried conspiracies as they talked about the terrible events of the evening. The fatigue on Ashnar's and Meilin's faces as they walked. The final image was Clara's shellshocked face as she trembled in the cold of the night.
 
