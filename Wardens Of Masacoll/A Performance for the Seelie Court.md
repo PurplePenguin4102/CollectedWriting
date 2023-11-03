@@ -56,78 +56,114 @@ A snortle came from an elderly eladrin man to her right, and Clara smiled to him
 
 Clara went silent for a moment, and there was a heaviness to the air as her thoughts ordered the events of the evening. Feeling the wonderous magic of the feywild around her, limericks and poetry swam through her head. Sonnets and ballads, songs of triumph, loss and woe. fey performances were beautiful, and heavily improvised. Even though it was her first time doing such a thing, the magic of the realm around her bolstered her oration, and gave her an unnatural calm as she spoke of the wardens of Masacoll.
 
-_The night was filled with love and venture
+_"The night was filled with love and venture_
 
-Hearts drew near as the prince's love drew close
+_Hearts drew near as the prince's love drew close_
 
-Jealous eyes to Meilin were lured
+_Jealous eyes to Meilin were lured_
 
-And down to the floor went they after blows_
+_And down to the floor went they after blows_
 
-_Fiercely we danced, and merrily we jigged
-And to Ashnar a man was sent
-But old Julius had his plans zigged
-And that man found his toes... quite bent_
+_Fiercely we danced, and merrily we jigged_
+
+_And to Ashnar a man was sent_
+
+_But old Julius had his plans zigged_
+
+_And that man found his toes... quite bent"_
 Clara nodded assertively. As she spoke the rhymes, the magic of the feywild showed images above her head of Ashnar purposefully stomping on her dancing partner. As well as the magical dance between Meilin and Willem Gylden.
 
-_Up from the sky the blue woman came_
+_"Up from the sky the blue woman came_
+
 _Down to the earth the Fell creature crashed_
+
 _Into his chest the trident was aimed_
+
 _But dead he was not, despite his gash_
 
 _Summon did he, more guests for us_
+
 _Dance did we, for jollity was the law_
+
 _With smiles and mirth, in their hearts we thrust_
-_Zombies, brutes, and a mighty Tyrannosaur_
+
+_Zombies, brutes, and a mighty Tyrannosaur"_
 Distorted images of battle surrounded her. The terrible battle they fought against the zombies and Ben GoldBleed. Clara's face twisted in worry, despite the rhyme being "smiles and mirth" guards were slain left and right. Marcus was shown sprinting desperately to save Karl, stabbing his dagger into the undead over, and over again. A bleak look on their faces.
 
-_We thought him cold, so we warmed him up,_
+_"We thought him cold, so we warmed him up,_
+
 _With magic, spells and slings we played_
+
 _A fire so bright it filled our cup_
+
 _With our own Reytarn forming a blockade_
 
 _O what friends we made, in battle most fair_
+
 _O what joy we felt as we danced our souls away_
+
 _Out, the lizard went to the square_
-_With bits of a mentor's shoulder, always time to play!_
+
+_With bits of a mentor's shoulder, always time to play!"_
 Images of Reytarn's fierce struggle against the titanic dinosaur, the T-Rex taking a chunk of the monk's shoulder. Tiv's ingenious plan to immolate the beast, and Clara's desperate, tearful pleading to try and get the frightened animal to safety. Britt's final plea to Reytarn as the beast crashed through to the courtyard. Clara's breathless cries of fury as she shot eldritch magic at the foul undead.
 
-_Alas, alas, it was time to go_
+_"Alas, alas, it was time to go_
+
 _And to other houses we went_
+
 _To spread the host's party favo'_
+
 _To the Goldbleeds were we sent_
 
 _Marcus did Julius betray _
+
 _A prank most lively and boisterous_
+
 _For love did Karl take Marcus his way_
+
 _Their fun would be so Roisterous_
 
 _Some guests we found _
+
 _Their carriage warm and golden_
+
 _They belong now to the Burial Ground_
-_To their coffins we were beholden_
+
+_To their coffins we were beholden"_
 The aftermath of the party. Arguments with Julius, Clara's frustration and repressed rage. The tearful faces of the frightened guests, and the panic that was on everyone's expression. The clear fatigue that was on Lady Esmerelda's face. Marcus taken in shackles despite committing no crime. The grim adventurers rushing to the next scene, only to be confronted with the burning corpses inside the carriage, desperately struggling to aid the one survivor.
 
-_The Celestes must have been quite cold_
+_"The Celestes must have been quite cold_
+
 _For their party they had all together decided_
+
 _To set fire to their whole damn household!_
-_Perhaps their plan was a... touch misguided?_
+
+_Perhaps their plan was a... touch misguided?"_
 Clara laughed, and the fey court all joined her uproariously as gruesome images of the thirty dead bodies hung over her head. The desperate struggle to save who they could. Tiv's masterful plan to burst the water pipes. Clara's clear look of fear and distress as she coughed in the smoke filled building. Following Britt's lead as they made their way through the maze of death.
 
-_And all this was ere I met_
+_"And all this was ere I met_
+
 _my guard in rusted armour_
+
 _Alfonse Chadwet_
+
 _Fell did I, for that little charmer_
 
 _And so with the household all dead_
+
 _On we went to the Goldbleed's manse_
+
 _Alas! They too were dead_
+
 _What rotten luck! How low the chance!_
 
 _With the moon hanging low_
+
 _My friends gathered around me_
+
 _To home we did go_
-_Speaking fondly of this night of merry._
+
+_Speaking fondly of this night of merry."_
 The final images circled through. The aftermath of the fire at the Celeste's. The expression on Clara's face when she realised they may be targeting noble houses. Brittney's worried conspiracies as they talked about the terrible events of the evening. The fatigue on Ashnar's and Meilin's faces as they walked. The final image was Clara's shellshocked face as she trembled in the cold of the night.
 
 Clara bowed graciously and the fey court erupted into applause from the boisterous performance. Hands clapped together as Mugwoggens slapped their tables, spriggans hooked arms and danced around and the leprechaun lit his corn pipe.
