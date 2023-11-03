@@ -56,15 +56,15 @@ A snortle came from an elderly eladrin man to her right, and Clara smiled to him
 
 Clara went silent for a moment, and there was a heaviness to the air as her thoughts ordered the events of the evening. Feeling the wonderous magic of the feywild around her, limericks and poetry swam through her head. Sonnets and ballads, songs of triumph, loss and woe. fey performances were beautiful, and heavily improvised. Even though it was her first time doing such a thing, the magic of the realm around her bolstered her oration, and gave her an unnatural calm as she spoke of the wardens of Masacoll.
 
-_The night was filled with love and venture_
-_Hearts drew near as the prince's love drew close_
-_Jealous eyes to Meilin were lured_
-_And down to the floor went they after blows_
+_The night was filled with love and venture
+Hearts drew near as the prince's love drew close
+Jealous eyes to Meilin were lured
+And down to the floor went they after blows_
 
-_Fiercely we danced, and merrily we jigged_
-_And to Ashnar a man was sent_
-_But old Julius had his plans zigged_
-_And that man found his toes... quite bent_
+_Fiercely we danced, and merrily we jigged
+And to Ashnar a man was sent
+But old Julius had his plans zigged
+And that man found his toes... quite bent_
 Clara nodded assertively. As she spoke the rhymes, the magic of the feywild showed images above her head of Ashnar purposefully stomping on her dancing partner. As well as the magical dance between Meilin and Willem Gylden.
 
 _Up from the sky the blue woman came_
