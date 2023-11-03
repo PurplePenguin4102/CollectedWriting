@@ -64,6 +64,7 @@ _Jealous eyes to Meilin were lured_
 
 _And down to the floor went they after blows_
 
+
 _Fiercely we danced, and merrily we jigged_
 
 _And to Ashnar a man was sent_
@@ -80,6 +81,7 @@ _Down to the earth the Fell creature crashed_
 _Into his chest the trident was aimed_
 
 _But dead he was not, despite his gash_
+
 
 _Summon did he, more guests for us_
 
@@ -98,6 +100,7 @@ _A fire so bright it filled our cup_
 
 _With our own Reytarn forming a blockade_
 
+
 _O what friends we made, in battle most fair_
 
 _O what joy we felt as we danced our souls away_
@@ -115,7 +118,8 @@ _To spread the host's party favo'_
 
 _To the Goldbleeds were we sent_
 
-_Marcus did Julius betray _
+
+_Marcus did Julius betray_
 
 _A prank most lively and boisterous_
 
@@ -123,7 +127,8 @@ _For love did Karl take Marcus his way_
 
 _Their fun would be so Roisterous_
 
-_Some guests we found _
+
+_Some guests we found_
 
 _Their carriage warm and golden_
 
@@ -149,6 +154,7 @@ _Alfonse Chadwet_
 
 _Fell did I, for that little charmer_
 
+
 _And so with the household all dead_
 
 _On we went to the Goldbleed's manse_
@@ -156,6 +162,7 @@ _On we went to the Goldbleed's manse_
 _Alas! They too were dead_
 
 _What rotten luck! How low the chance!_
+
 
 _With the moon hanging low_
 
