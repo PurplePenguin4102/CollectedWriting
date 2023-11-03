@@ -1,6 +1,6 @@
 # The Performance
 
-https://cdn77.gemgrace.com/29926-thickbox_default/sparkly-sequined-gold-ball-gown-prom-dress-with-off-shoulder-straps.jpg
+https://cdn77.gemgrace.com/29926-thickbox_default/sparkly-sequined-gold-ball-gown-prom-dress-with-off-shoulder-straps.jpg (Dress)
 
 On the stage, Clara appears as the image of a young, noble lady. With her long pink hair tied in a tight beehive above her head, her neck felt unusually cold and it gave her a quiet discomfort, like someone was watching her from behind. The performance gown she wore was heavy, and allowed for little movement. It was, of course, made to stand out. She looked like a storybook princess, with trains and flows and layered fabrics to cover her porcelain, well made skin. She commented earlier though that, with the way the hips flared out, she looked like a silly, yellow, upside-down bell in the stupid thing. A comment she later felt the need to apologise for. 
 
@@ -10,7 +10,7 @@ As the sixth piece ends, she turns her head slightly to spy her friends in the a
 
 "Thank you, everybody," pausing to swallow hard, "I hope that you'll enjoy my last piece this evening... I..." she clears her throat, "As a celebration of the young master's ascension to adulthood, and as a gift from our family, I humbly strung together a few notes for him, though I had to borrow from someone a little better at composition than I..." she smiles awkwardly with her small joke, whether it receives a chuckle or not. "In dedication for Willem Gilden, Partita and Gigue in the key of E."
 
-https://www.youtube.com/watch?v=5tjl07RmEQg
+https://www.youtube.com/watch?v=5tjl07RmEQg (First song)
 
 She lifts her bow and sucks in a small breath as she starts to draw it across the strings. The piece is bright and airy, with a combination of punctuating notes and baseline chords that make it seem as if two violins are playing in harmony. The complexity of the work is obvious, and borrowed many of the old masters' techniques and structures. It wouldn't be out of place in any music hall from two-hundred years ago.
 
@@ -20,9 +20,9 @@ Metronomically perfect, rhythmically in time with accents and dynamics in the ri
 
 As the prelude draws to a close, she closes her eyes and her chest lifts with a deep breath in the small moment between movements. Suddenly, smoke bursts forth from the floor, and for a moment the sequined princess is entirely obscured from vision. Inside the smoke, Clara dismisses the silent image enchantment she'd been maintaining the entire time. 
 
-https://youtu.be/bQagZh4W58c?si=NzJiq5qypWwqjJNM&t=211
+https://youtu.be/bQagZh4W58c?si=NzJiq5qypWwqjJNM&t=211 (Second song)
 
-https://i.kym-cdn.com/photos/images/original/001/178/749/89e.jpg  
+https://i.kym-cdn.com/photos/images/original/001/178/749/89e.jpg (Second Dress)
 
 Bursting forth from the smoke she re-appeared in a fey dancer's outfit, gripping her expensive, family violin fiercely like a cheap fiddle and clamping her eyes dead shut. 
 
