@@ -7,6 +7,7 @@ Marcus' face appeared in her vision, and in his outstretched hand was a leather 
 Marcus brought his arms to a fold over his chest, standing up naturally straight from the townsguard training. He looked quite snappy in the gray uniform, which he often wore off-duty as it was one of his better kept pair of clothes. "I did." He admitted simply, "You have to be more careful, every time I see you I just want to rob you, you walk around so exposed."
 
 "You're the only one who ever *does* rob me, though," Clara's felt her cheeks puff out as her lips pursed.
+
 Marcus thumbed his chest, "Because I'll kick the snot out of anyone else who tries, that's why." Clara ended up laughing at his expression, and beckoned him to join her. 
 
 Spending the afternoon together, they walked side by side down the busy streets. Clara stopped frequently to greet people with her usual smile. They went to the armourer, the blacksmith and the leatherworker. Marcus inspected every length of steel he could, and tested every dagger he could get his hands on. They bought pasties at the baker from his famous "Three O'Clock batch", and explored the lengths of the barrows, seeing trinkets and rugs and junk merchants alike. Eventually, Clara guided their shopping trip towards a strange destination. Down an alleyway marked as "Goldblood 35 1/3rd Avenue" the houses rose up on either side of them. At the end of the avenue, a bright yellow door appeared with a blue handle, and a purple sign that gaudily read, "Mr. Marvelous' Wonderous Emporium of Magical Things".
@@ -14,25 +15,33 @@ Spending the afternoon together, they walked side by side down the busy streets.
 Despite the surroundings, they were greeted inside with a mysteriously cooled atmosphere. Clara felt her dress lift slightly as a cool breeze brushed along the entirety of her skin. "Whooo!" She shivered as she collaped her parasol, "That cold Icewind Air really hits the right spot." She could almost feel her skin being massaged by icecubes as she swished her clothing to greedily lap up more gusts of magically cooled air.
 
 "It makes me uncomfortable," Marcus said shortly, "I prefer the heat myself, it just doesn't feel like Summer when I come into these ritsy shops..."
+
 Clara giggled, finding her hand reaching up and brushing at his lapel, "Oh it's alright, we'll be in and out of here shortly, I know just what I want."
 
 Marcus cocked an eyebrow, "Well that'll be a change, I thought we were going to be here for the next hour or so..."
+
 Clara shook her head, "Oh gods no.. the uhh..."
 
 "Well HellooOOOoooOOooo there," a rotund male appeared at their left. He was as round as he was short, and despite the artificially cooled air, mops of sweat seemed to pour from his brow, that he dabbed gingerly with a many folded handkerchief. "Hello dear children, and welcome to Mr. Marvelous' Wonderous Emporium of Magical Things. I'm Merrick Marvelous, and ahh... Ms. Steibelt it is SO GOOD to see you, how can I help you hmm? Are you here perhaps for a trade? Perhaps I can fetch young Martin for your company?"
 
 Clara was adept at hiding her expression when the situation called for it, but Marcus could easily see her visibly cringe when she heard the shopkeeper's voice. Quickly, she responded, "It is always a pleasure, Mr. Marvelous," with a smile that could melt ice. "Unfortunately I wasn't looking for Martin today, but I'm ever so eager to have you over for tea in a week's time."
+
 "Of course, of course! He is quite handsome, my little Martin. A good looker and from good, solid stock! It is good if such well bred children are good friends, don't you think? Also he has Marvelous in the name! Just like his old man."
 
 Clara laughed, pushing her hand over her mouth to hide the way her teeth were gritting. "I was wondering, Mr. Marvelous, I heard that you'd recently gotten a shipment of new trinkets, and I was looking for something pretty for my nightstand..."
+
 Like sweaty thunder, his hands came together in a clap and he moved forward to take her by the shoulder, roughly pulling her from Marcus' side, "Of course, of course. Right this way my dear, I haven't put the good stuff on the shelves yet. Oh, and you can bring your erm... guard if you like too." 
+
 Marcus tried to exchange a look with Clara, imagining her expression at the moment, a combination of 'Get me out of here,' and 'Help me,' saying under his breath as he followed along, "Just what the bloody hell are you wanting here, Clara?"
 
 With that, they were taken into the back room of Mr. Marvelous' emporium. Unlike the showroom, boxes were stacked to the ceiling as the various trinkets, doodads and thingamabobs were piled high. The obsequious salesman gushed endlessly over the young Clara as she delicately brushed her hand over the various gems and jewels, politely shaking her head as she went from one gaudy bauble or piece of jewellery to another. Marcus, for his part, was largely ignored by the shopkeeper, and was free to cast his gaze around the backroom. Eventually eyeing a theatre mask that was twisted in a visage of horror. Turning it over it was stamped, 'Made in Ginda', cheap junk. He put the mask back when he heard a soft "Oh!" from Clara, as her eyes eventually landed on a small, simple-looking wooden stick that was leaning against the counter.
 
 "Oh, what's this?" She reached out to touch it, but her hand was swatted away by the shopkeeper.
+
 "Oh now, now, now, that is not an object for children to be playing with, young Ms. Steibelt." He quickly reached over and snatched the wooden rod from the floor and attemped to hide it from sight. "Such a--uhh, boring looking thing  as this has no place in a refined lady's possession."
+
 Clara withdrew her hand, "Oh, but it looked interesting to me, so I thought perhaps I could see it closer..?"
+
 Mr Marvelous' jowels warbled as he shook his head from side to side, "Absolutely not, Ms. Steibelt, this uhh... boring old artefact is really just a small staff for apprentice mages, it really has no uhh..."
 
 "Let her look." Marcus stepped forward. Dressed in his guard's uniform, and towering over the portly little Mr. Marvelous, Marcus' furrowed brow and stern expression gave the sputtering merchant a pause. Of course, Marcus had no ability to threaten, arrest or hold account a shopkeeper who wouldn't show his wares, but thankfully either Mr. Marvelous didn't seem to know that, or he was driven by decorum to present it.
@@ -56,7 +65,9 @@ The shopkeeper's face went pallid as his cheeks fell. "Ohh you caught me, Ms. St
 "But fiendish magic is evil," Clara insisted, subconsciously gripping the rod in her fingers. Even now, it beckoned to her.
 
 The shopkeeper's jowels warbled as he shook from side to side, "Absolutely Miss Steibelt, but warlocks are not necessarily fiendish! Have you heard, perhaps, of the whimsical songs of Queen Titania? Solemn liege of the fey, and patron to the glamorous knights?"
+
 Clara tilted her head to the side, "I have... but only in passing..."
+
 The shopkeeper snatched the rod from her hands as he stroked it, "Well, this rod is attuned for such warlocks. It strengthens the bonds of the warlock to the feywild, allowing them to cast more spells, and making their magics more deceptive and enthralling!"
 
 Clara balled her fists and stepped forward, "Oh it sounds simply marvelous! I simply must have this rod, Mr. Marvelous! It looks so simple but it's so powerful. And it suits my decorations perfectly."
