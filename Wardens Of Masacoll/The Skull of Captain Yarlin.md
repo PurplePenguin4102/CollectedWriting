@@ -3,7 +3,9 @@
 The sun beat down on the streets of Gylden. Thick heat rising from the cobbled street, reflecting up a sunny summer's haze. Clara thanked her foresight for packing her parasol that day as her blue gaze swung from left to right. In her nose was the smell of freshly baked cinnamon scrolls and puffed Dwarfen pasties. She twirled her parasol, momentarily distracted by the fronds at the end when a jingle of gold took her attention.
 
 Marcus' face appeared in her vision, and in his outstretched hand was a leather purse, fat with gold. "You dropped this," the cheeky, handsome smile of the boy filling his expression. 
+
 "Marcus !--" Clara cut herself off in shock as she snatched her purse out of his hand, and reattached it to her waistband. Quietly, she mumbled, "You took it from me."
+
 Marcus brought his arms to a fold over his chest, standing up naturally straight from the townsguard training. He looked quite snappy in the gray uniform, which he often wore off-duty as it was one of his better kept pair of clothes. "I did." He admitted simply, "You have to be more careful, every time I see you I just want to rob you, you walk around so exposed."
 
 "You're the only one who ever *does* rob me, though," Clara's felt her cheeks puff out as her lips pursed.
