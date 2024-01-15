@@ -166,7 +166,7 @@ Yarlin snapped back furiously, "You little whelp. Lose all of your flesh and bon
 
 Britt scowled, "God you're such a bore."
 
-Yarlin grinned, as much as a skull could communicate more than a fiendish grin, "Well why don't we complete the contract, then? There are questions to be asked and there's a contract to be broken, and you kids have five left! Why don't you simply ask how to shut me up?"
+Yarlin grinned, as much as a skull could communicate more than a fiendish grin, "Well why don't we complete the contract, then? There are questions to be asked and there's a curse to be broken, and you kids have five left! Why don't you simply ask how to shut me up?"
 
 Frustrated, Brittany firmly put her heel against Yarlin's skull and kicked him off the pedestal again, "Why the hell would I ask something impossible?! I might as well ask how to win the damn lottery!"
 
