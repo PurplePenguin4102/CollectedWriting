@@ -392,7 +392,7 @@ Yarlin yelped in surprise and threw his arms up to defend himself from the blade
 
 Brittney span on her heel, looking up to pointedly look in the devil's black eyes. "That's not even the start of it! Why the hell was Clara crying?! What did you do?"
 
-Yarling looked at his fingernails dismissively, "Oh don't worry. I answered you already, she's just surprised. I kissed her back. A very amusing reaction you had though. hot headed little Brittney, ready to break a devil's contract for her little Clara. We'll call that a glitch, perhaps. Let's say you were just testing the nerve endings in my newly grown body."
+Yarlin looked at his fingernails dismissively, "Oh don't worry. I answered you already, she's just surprised. I kissed her back. A very amusing reaction you had though. hot headed little Brittney, ready to break a devil's contract for her little Clara. We'll call that a glitch, perhaps. Let's say you were just testing the nerve endings in my newly grown body."
 
 Brittney felt an angry fire in her heart, and a fire circling her fingertips as she side-eyed the devil. "What the hell were you two talking about for so long, anyway..?"
 
