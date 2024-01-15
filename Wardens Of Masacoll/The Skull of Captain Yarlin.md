@@ -342,7 +342,7 @@ Yarlin chuckled, "Come... come now, you can't hide it from me. My eyes see all. 
 
 Clara frowned, "Is that it? Is that your big revelation? I tell them I love them all the time!"
 
-"But they don't know HOW MUCH!" Yarlin shot back, "They don't realise how serious you're being when you say that. They don't feel the gaping, yearning emotion you do when you reach out to them. They don't see the want in your eyes, the burning in your chest, how much you need them, you desire them. They don't see your fantasies the way I do. They don't see the way you so desperately want to taste them on your tongue."
+"Indeed. A brilliant deception in plain sight." Yarlin grinned, "But they don't know HOW MUCH! To what DEGREE you love them. They don't realise how serious you're being when you say that. They don't feel the gaping, yearning emotion you do when you reach out to them. They don't see the want in your eyes, the burning in your chest, how much you need them, you desire them. They don't see your fantasies the way I do. They don't see the way you so desperately want to taste them on your tongue."
 
 Clara fell silent, her throat going dry as she looked away from the skull again, an unhappy feeling welling in her chest. Yarlin allowed her a moment, before speaking again, "Sign the pact with me, Clara. I will make the wardens of Masacoll yours, in every way you desire it. The 'adventure' will end, and you can live that debauched life you're yearning for. All six of you, together. Forever."
 
@@ -354,15 +354,15 @@ Clara shook her head, "Not Titania..." she said quietly. She looked down at the 
 
 "Who gives a rats!" Yarlin scowled, "You're not signing a pact with them, you're signing it with me! What about what you want?"
 
-Clara shook her head again, "I love them as they are now... that life... what you described. It wouldn't be them. It would feel like them, look like them, but there'd be something missing. I need Tiv's toys, Ashna's clairvoyance, I need the look in Meimei's eyes, the way Britt talks to me and noone else, and I need Marcus' mission to help others... I need their... everything... to be happy."
+Clara shook her head again, "I love them as they are now... that life... what you described. It wouldn't be them. It would feel like them, look like them, but there'd be something missing. I need Tiv's toys, Ashna's clairvoyance, I need the look in Meimei's eyes, the way Britt talks to me so softly but nobody else, and I need Marcus' mission to help others... I need their... everything... to be happy."
 
-Yarlin scoffed, "Hmph..." taking a moment, "Well it was worth a try. So be it! Let it be on your head then, if any of the wardens die in this adventure of yours, you'll always know I offered you a way to save them, forever."
+Yarlin scoffed, "Hmph..." taking a moment, "Well it was worth a try. So be it! Let it be on your head then, if any of the wardens die in this adventure of yours, you'll always know I offered you a way to save them, and you didn't take it."
 
 Clara sighed softly, stroking the cranium of the skull, "Don't even say such an awful thing, Yarlin. I trust my friends."
 
 Yarlin twitched in her hand, side-eyeing her, "Your sweetness even gives me a tooth-ache," he scoffed. "I can at least tell you who'd be willing to knock boots with you if you tried it on... for the cost of your question, of course."
 
-Clara felt herself giggle, and almost dropped the skull, "I'll be okay... thank you."
+Clara felt herself giggle, and almost dropped the skull from laughing, "I'll be okay... thank you."
 
 Yarlin grumbled softly, "If you're going to kiss me, you should do it quickly. The girls outside are getting antsy."
 
@@ -370,7 +370,7 @@ Clara tensed and swallowed her retort. She threw the last words she had to the b
 
 Flesh, skin, warmth. Her lips were firmly locked with Yarlins and she felt a strong embrace as her head crooned back. He was tall. Enormously tall, and his giant frame wrapped around hers easily. His lips were hot and the kiss grew passionate, torrid. He pushed against her and snaked his tongue between her teeth. Her pulse quickened and her chest grew hot, yearning. His hands freshly exploring her body, down her back and all over her. Sensations were awakened all at once as the demon began to consume her like a lover, and she started feeling lost in the passionate embrace.
 
-Clara's cheeks grew hot and her eyes went wide. Pulling back her arm suddenly she *slapped* Yarlin across his cheek, breaking the kiss and screaming, "KEEP YOUR GODDAMNED TONGUE TO YOURSELF!" Shoving him away, hard. Opening her mouth and licking her arm to try and rid herself of the taste of his mouth.
+Clara's cheeks grew hot and her eyes went wide. Pulling back her arm suddenly she ***slapped*** Yarlin across his cheek, breaking the kiss and screaming, "KEEP YOUR GODDAMNED TONGUE TO YOURSELF!" Shoving him away, hard. Opening her mouth and licking her arm to try and rid herself of the taste of his mouth.
 
 Britt and Meilin rushed in when they heard Clara screaming, but they were met with a pink-haired blur as Clara shoved past them, not able to look either of them in the eye. A very stunned, very tall and very naked devil captain was dazed in the dirt, looking up at the pair. The red devil was tall and broad, with crimson red flesh and pitch black eyes, yellow pupils glowing within.
 
@@ -392,7 +392,7 @@ Yarlin yelped in surprise and threw his arms up to defend himself from the blade
 
 Brittney span on her heel, looking up to pointedly look in the devil's black eyes. "That's not even the start of it! Why the hell was Clara crying?! What did you do?"
 
-Yarling looked at his fingernails dismissively, "Oh don't worry. I answered you already, she's just surprised. I kissed her back. A very amusing reaction you had though. hot headed little Brittney, ready to break a devil's contract for her little Clara."
+Yarling looked at his fingernails dismissively, "Oh don't worry. I answered you already, she's just surprised. I kissed her back. A very amusing reaction you had though. hot headed little Brittney, ready to break a devil's contract for her little Clara. We'll call that a glitch, perhaps. Let's say you were just testing the nerve endings in my newly grown body."
 
 Brittney felt an angry fire in her heart, and a fire circling her fingertips as she side-eyed the devil. "What the hell were you two talking about for so long, anyway..?"
 
