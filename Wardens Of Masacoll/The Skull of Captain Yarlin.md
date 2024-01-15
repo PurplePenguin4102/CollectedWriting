@@ -354,7 +354,7 @@ Clara shook her head, "Not Titania..." she said quietly. She looked down at the 
 
 "Who gives a rats!" Yarlin scowled, "You're not signing a pact with them, you're signing it with me! What about what you want?"
 
-Clara shook her head again, "I love them as they are now... that life... what you described. It wouldn't be them. It would feel like them, look like them, but there'd be something missing. I need Tiv's toys, Ashna's clairvoyance, I need the look in Meimei's eyes, the way Britt talks to me so softly but nobody else, and I need Marcus' mission to help others... I need their... everything... to be happy."
+Clara shook her head again, "I love them as they are now... that life... what you described. It wouldn't be them. It would feel like them, look like them, but there'd be something missing. I need Tiv's toys, his playfulness, Ashna's clairvoyance and serenity, I need the look in Meimei's eyes, the way Britt talks to me so softly but nobody else, and I need Marcus' mission to help others... I need their... everything... to be happy."
 
 Yarlin scoffed, "Hmph..." taking a moment, "Well it was worth a try. So be it! Let it be on your head then, if any of the wardens die in this adventure of yours, you'll always know I offered you a way to save them, and you didn't take it."
 
