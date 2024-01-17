@@ -390,7 +390,7 @@ Tracing the somatic components in the air, Brittney furiously finished the incan
 
 Yarlin yelped in surprise and threw his arms up to defend himself from the blades. ducking his head under and rolling out of the spell's radius. The cutting winds like steel smarting over his flesh and opening up wounds. Transporting himself behind the tiefling bard, he cleared his throat. "That hurt. I have nerves! Oh this is delicious, I can feel pain again!"
 
-Brittney span on her heel, looking up to pointedly look in the devil's black eyes. "That's not even the start of it! Why the hell was Clara crying?! What did you do?"
+Brittney span on her heel, looking up to pointedly look in the devil's black eyes. "That's not even the start of it! One more time now. Why the hell was Clara crying?! What did you do?"
 
 Yarlin looked at his fingernails dismissively, "Oh don't worry. I answered you already, she's just surprised. I kissed her back. A very amusing reaction you had though. hot headed little Brittney, ready to break a devil's contract for her little Clara. We'll call that a glitch, perhaps. Let's say you were just testing the nerve endings in my newly grown body."
 
