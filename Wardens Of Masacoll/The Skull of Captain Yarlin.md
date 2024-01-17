@@ -386,7 +386,7 @@ Yarlin himself was still reeling, looking over his hands and flexing his toes, "
 
 "Oh whatever, she's just a little surprised. She'll be fine." he started inspecting his body with his hands, locking his fingers together and feeling the bones, "The curse, the curse! The bitch's curse is lifted!"
 
-Tracing the somatic components in the air, Brittney furiously finished the incantation, and threw a cloud of daggers at Yarlin, "DIE! YOU PIECE OF SHIT!"
+Tracing the somatic components in the air, Brittney furiously finished the incantation, and threw a cloud of daggers at Yarlin, "DIE! YOU PIECE OF SHIT! WHY IS CLARA CRYING?!"
 
 Yarlin yelped in surprise and threw his arms up to defend himself from the blades. ducking his head under and rolling out of the spell's radius. The cutting winds like steel smarting over his flesh and opening up wounds. Transporting himself behind the tiefling bard, he cleared his throat. "That hurt. I have nerves! Oh this is delicious, I can feel pain again!"
 
