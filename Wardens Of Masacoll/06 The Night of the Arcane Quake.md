@@ -32,7 +32,7 @@ The feeling was like a needle to the brain. A sharp tug, as if the brain was bei
 
 It was an arcana quake. The second once-in-a-lifetime event that had happened only four weeks after the first.
 
-Clara was doubled over immediately. Britt for her part shook in agony as she eventually found her breath to scream, and Tiv ground his jaw shut as he shuddered in pain. The entire house shook, as the arcana quake rippled through the sea-elf city, and the great rumbling sensation gave Meilin pause as she looked around in a frightened panic.
+Clara was doubled over immediately. Britt for her part shook in agony as she eventually found her breath to scream, and Tiv ground his jaw shut as he shuddered in pain. The entire house shook, as the arcana quake rippled through the sea-elf city, and the great rumbling sensation gave Meilin pause as she looked around, wide-eyed in shock.
 
 Suddenly awake, Marcus flew out of his room with a slam and yelled, "Is everyone all right?" He was wearing pants from being scolded earlier.
 
