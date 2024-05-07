@@ -62,7 +62,7 @@ Clara flinched from the touch, looking bleary eyed through her tear-soaked eyeli
 
 The waves of brimstone-tasting, primordial and devilish energy washed over the three magic users. Aftershocks of the quake hitting softer and softer. The entire household was now awake, with the magically attuned elves either writhing in agony or being attended to by those who were more physically inclined.
 
-"We need to figure this stuff out, quickly," Marcuse said, looking around.
+"We need to figure this stuff out, quickly," Marcus said, looking around.
 
 "The elves probably need our help..." Meilin put in as a maid rushed past them.
 
@@ -82,11 +82,11 @@ Brittney's brow furrowed, "But the elves took us in... gave us food and supplies
 
 "And helped uncle Reytarn," Meilin put forward.
 
-Tiv took a few moments to look between his friends, and hurriedly gestured for them all to be closer, so that they could communicate in whispers. As they all gathered around, Tiv said, "I know... I know... Elves do everything and they look like they friendsss." His beady lizard eye flicking from Marcus to Meilin. "I know you trust. But the only people Tiv trust is people who can hear him right now. You. We kobolds small, we trust very little. Everything eat us. Dinosaur eat us, dragon eat us, goblin eat us, human eat us."
+Tiv took a few moments to look between his friends, and hurriedly gestured for them all to be closer, so that they could communicate in whispers. As they all gathered around, Tiv said, "Elves do everything and they look like they friendsss. But they also take away fire. They take away Tiv weapons." His beady lizard eye flicking from Marcus to Meilin. "I know you trust. But the only people Tiv trust is people who can hear him right now. You. We kobolds small. Everything eat us. Dinosaur eat us, dragon eat us, goblin eat us, human eat us."
 
 "What have the elves done, though, to make you suspect them?" Britt probed.
 
-Tiv nodded slowly, giving Gimble one final THWACK behind the head, before the mechanical hound started bleeping, grinding and coming back to life. "The follow us, they tesst us, they look us funny on street. I see half of the elvess hatess us, the other half don't want anything to do with uss. We're lucky lucky that the council didn't sentence us to death immediately after Clara talking to them."
+Tiv grumbled softly, giving Gimble one final THWACK behind the head, before the mechanical hound started bleeping, grinding and coming back to life. "The follow us, they tesst us, they look us funny on street. I see half of the elvess hatess us, the other half don't want anything to do with uss. We're lucky that the council didn't sentence us to death immediately after Clara talking to them."
 
 Clara shuffled and gulped, but Brittney spoke before her, "Well that's because our little Clara has a way with words. She did amazing tonight!"
 
@@ -98,7 +98,7 @@ Brittney sighed, "We just have to put up with it until they trust us..."
 
 After a while, Marcus looked down at his hand, which was subconsciously gripping his father's coin, "Trust is built off favours, same as on the street. We do good things for them? They'll learn we're the right kinda guys."
 
-Tiv took a sharp breath to retort, but then looked between his friends, Clara, Meilin, Tiv and closed his eyes. "Kobolds do traps," he said, thoughtfully, "We small, so we have to use traps to win." He looked between them again, "My nose sssmells traps here. I don't likess it."
+Tiv took a sharp breath to retort, but then looked between his friends and closed his eyes. "Kobolds do traps," he said, thoughtfully, "We small, so we have to use traps to win." He looked between them again, "My nose sssmells traps here. I don't likess it."
 
 Meilin knelt down to Tiv's level, with her hands on her knees. "Tiv... are you saying we're in danger?"
 
