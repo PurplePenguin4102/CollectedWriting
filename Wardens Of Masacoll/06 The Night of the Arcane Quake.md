@@ -118,7 +118,7 @@ Serdan found himself chuckling, turning to the tiefling, "Young lady, I swore an
 
 With that, Serdan stomped through the group to move on with the immediate crisis. 
 
-The wardens exchanged hugs and began heading off to their separate rooms. Just as she was about to reach out her hand to take the doorknob, Clara jumped out of her skin as a red, scaled and yet deceptively soft red hand engulfed hers. As Clara turned around, Britt held a red finger to her lips.
+The wardens exchanged hugs and began heading off to their separate rooms. Just as she was about to reach out her hand to take the doorknob, Clara jumped out of her skin as a red, scaled and yet deceptively soft hand engulfed hers. As Clara turned around, Britt held a finger to her lips.
 
 "Shh," Brittney cut her off, whispering back. Taking no time at all, Britt rushed Clara into her room, and closed the door behind her, trapping the little warlock between her door and her rather aggressively inquisitive friend, "Before you say anything else girl. Why ARE you wearing that dress tonight?" 
 
