@@ -60,7 +60,7 @@ Clara flinched from the touch, looking bleary eyed through her tear-soaked eyeli
 
 "You'll be okay Clara, it'll pass," Marcus shuffled closer to her and put his arms around her warmly. "Just like it did last time, it won't be long..." The sentiment uttered more from hope than any true knowledge
 
-The waves of brimstone-tasting, primordial and devilish energy washed over the three magic users. Aftershocks of the quake hitting softer and softer. The entire household was now awake, with the magically attuned elves either writhing in agony or being attended to by those who were more physically inclined.
+The waves of brimstone-tasting, primordial and abyssal energy washed over the three magic users. Aftershocks of the quake hitting softer and softer. The entire household was now awake, with the magically attuned elves either writhing in agony or being attended to by those who were more physically inclined.
 
 "We need to figure this stuff out, quickly," Marcus said, looking around.
 
