@@ -132,7 +132,7 @@ Britt smirked and flicked some fluff off her shoulder, brushing it affectionatel
 
 Clara's harsh whisper shot through her teeth as she covered her chest, "My tits aren't..."
 
-Brittney giggled as her tail flicked and whipped mischievously. "Well they're not exactly tucked in like in your usual hoity-toity 'I must see the Favershams for tea' dress either, darling." Clara clamped her mouth shut, speechless, and looked to the side. Knowing that she'd been caught. Brittney rubbed her shoulder again, and then moved to hug her, "Don't do anything stupid, or dangerous Clara. I worry about you."
+Brittney giggled as her tail flicked and whipped mischievously. "Well they're not exactly tucked in like in your usual hoity-toity 'I must see the Favershams for tea' dress either, darling." Clara clamped her mouth shut, speechless, and looked to the side. Knowing that she'd been caught. Brittney rubbed her shoulder again, and then moved to hug her, "Clara... you know I worry about you."
 
 "I know... thank you." She whispered back.
 
