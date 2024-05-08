@@ -146,7 +146,7 @@ Clara pursed her lips, "I get another one!"
 
 Britt's facial expression fell slightly, "Clara, I don't like secrets between us. You shouldn't have to keep things from me,"
 
-Clara smiled and hugged her friend again, "I'm sorry... I just know this is going to make you a little mad..." she paused for a second to ready herself, "I wanted to summon Yarlin, to thank him for the flowers from a few days ago."
+Clara nodded abashedly and looked at the floor between them, "I'm sorry... I just know this is going to make you a little mad..." she paused for a second to ready herself, "I wanted to summon Yarlin, to thank him for the flowers from a few days ago."
 
 "YARLIN?!" Britt yelled, and immediately covered her own mouth. Whispering conspiratorially, "Are you insane?? What's gotten into you Clara??"
 
