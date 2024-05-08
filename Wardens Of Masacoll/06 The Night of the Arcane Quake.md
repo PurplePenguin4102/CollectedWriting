@@ -194,7 +194,7 @@ Clara laughed and approached him, gently lifting his large palm and holding a sm
 
 Yarlin looked between the two. The turning of events were a surprise even to him. "I... wouldn't use the word 'court' to describe all the things I want to do to you... but yes."
 
-Clara opened her hand and allowed him to admire the small gift. It was a small, jeweled bracelet, made from tiny, shining seashells. "Then, allow me to return a gift to you, dear captain," she curtsied shortly after, "Madam Hardgreaves always said that a lady ought to return either her affections or a gift of equal effort when courting a gentleman,"
+Clara opened her hand and allowed him to admire the small gift. It was a small, jeweled bracelet, made from tiny, shining seashells. "Then, allow me to return a gift to you, dear captain," she curtsied shortly after, "Madam Hardgreaves always said that if a lady is courting a gentleman, when she receives a gift she ought to return either her affections or a gift so that he doesn't feel slighted,"
 
 Yarlin turned the bracelet over, and slipped it coolly over his hand. "Well well... I wasn't expecting this..." looking back up to her, "Does this mean I won't be enjoying your affections tonight, Clara?"
 
