@@ -126,7 +126,7 @@ Clara's eyes flew wide. "Um?!" darting her eyes left and right. The other warden
 
 Britt cut her off with just the look on her face. "You're not dressed to go to a fighting pit, Clara. You're dressed to go on a date."
 
-Clara's heat rushed to her face, blushing so hard under interrogation that it triggered her natural rosacea and crosing over her nose and earlobes. "Wh-whatever do you mean?" a nervous laughter bubbling out of her throat.
+Clara's heat rushed to her face, blushing so hard under interrogation that it triggered her natural rosacea and crossing over her nose and earlobes. "Wh-whatever do you mean?" a nervous laughter bubbling out of her throat.
 
 Britt smirked and flicked some fluff off her shoulder, brushing it affectionately. "You don't have to lie to me, Clara, I'm not your bitch governess. Who, by the way, would have an absolute conniption seeing your tits out in this dress."
 
