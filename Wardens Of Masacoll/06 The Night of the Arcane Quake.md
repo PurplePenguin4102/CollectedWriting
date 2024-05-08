@@ -164,7 +164,7 @@ Brittney spoke very slowly, calming down her own rushing thoughts "Clara. Just t
 
 "Ohhhh yes!" A deep, thrumming male voice resonated from Clara's bed, the sharp tang of brimstone in the air as the towering devil toyed with a small, pink flower that he was delicately fondling. "Clara my dear you do look like quite the peach tonight indeed." Yarlin's voice resonated with a strange, infernal bass that seemed to make the heart beat faster. He had manifested his existence wearing little more than sheets. An outfit that was revealing even by sea-elf standards. It left little to the imagination for the 8-foot tall devil's chiseled physique.
 
-"Y- Yarlin?!" Brittney scowled. "What the hell are you doing here?
+"Y- Yarlin?!" Brittney scowled. "What in the hells are you doing here?
 
 Yarlin laughed, "Well don't ask me, you were both going 'Yarlin' this and 'Yarlin' that, so TA-DAAA here I am!" With that, he confidently cocked his knee in the air, drawing the flower across his skin.
 
