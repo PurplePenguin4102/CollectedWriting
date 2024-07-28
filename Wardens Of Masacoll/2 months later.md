@@ -192,9 +192,41 @@ Clara smiled as she tucked the tarot reading away in her coat before leaving, "I
 
 As Clara left, Ashna looked to the doorway curtain, and opened a drawer to her right. Reaching in, she pulled a book that seemed to drip from knitted flesh. The wicked smile on the cover widening as it came into the light. "Okay... back to this... how to make a permanent servant with stable intelligence matrix WITHOUT evil divinity..." she mumbled under her breath. "How... to make... a Ben Goldbleed..."
 
-Clara felt a shiver in her spine as she walked towards the new Alcazar. In the moments after Ben Goldbleed and his hordes of undead were driven back by the mighty explosion, the greatest outpouring of humanity that Gylden had ever seen took place. The sheer magnitude of the magical war that had waged between the mighty necromancer, and the mysterious dwarven arch-wizard the town affectionately referred to as "Nelly" was something incomprehensible to most people. What was very comprehensible, on the other hand, was the sheer amount of death and destruction that had rained from the heavens to put an end to it. Clara always silently thanked whatever Gods would listen, that Ben Goldbleed was blamed for the explosion, and not her dear friend Tiv. Had it been the latter, she would have found her emotions difficult to work with.
+Clara felt a shiver in her spine as she walked towards Alcazar. In the moments after Ben Goldbleed and his hordes of undead were driven back by the mighty explosion, the greatest outpouring of humanity that Gylden had ever seen took place. The sheer magnitude of the magical war that had waged between the mighty necromancer, and the mysterious dwarven arch-wizard the town affectionately referred to as "Nelly" was something incomprehensible to most people. What was very comprehensible, on the other hand, was the sheer amount of death and destruction that had rained from the heavens to put an end to it. Clara always silently thanked whatever Gods would listen, that Ben Goldbleed was blamed for the explosion, and not her dear friend Tiv. Had it been the latter, she would have found her emotions difficult to work with.
 
 After the initial disaster, which blasted away entire suburbs of the city, there was an immediate effort to scavenge the blast site and surrounding areas. The watch led by lady Esmerelda Gylden and her family, poured the coffers of the city and more into the rescue and preservation of life. The immediate issues were medical aide, a simple headcount to account for all the souls living, and supply of food and blankets to the newly homeless. People worked day and night, from all walks of life, clearing rubble, bandaging wounds and setting bones. From girls like Clara herself to strapping sailors and dock workers. They organised in shifts to clear the wreckage and take stock of the raw damage that had been done in the attack.
 
 After two weeks, a small shanty town had been crudely erected to house the residents of the district. Thick canvas blankets tied with sailor knots. People living in whatever dignity they could find with only a few sheets of iron and wood pallets for furniture and comfort. Mourning the dead in large memorials while trying to get on with life. In order to avoid the stigma, and to live with some sense of pride, the residents of the new shanty district came to calling their place "Alcazar", the name of a distant, exotic, palatial residence in the far east. Though some saw it as a joke that a shanty was referred to as a palace, after two months, residents lived with soft smiles as they heard the name said unironically.
+
+Children liked to play in Alcazar, one of them softly bumping into Clara's legs and grinning with a broad, crooked grin. Clara laughed back at the kid as she gently pushed him off. "Wait for me!" his friend called after, chasing him with a stick almost half his size in length. The shanty town was largely safe. Opportunists and crime notwithstanding, Clara was able to walk unimpeded towards her destination. Cutting under a corrugated sheet of iron, and stepping past an anchor supporting a mooring rope, she came to the food clearing and her face brightened. Seeing Brittney manning the icecream stall next to Tedac Lowan.
+
+"**Icecream!**" Britt projected her voice outwards. From there, small heads popped from just about every conceivable nook and cranny of the clearing, and the small stand was immediately swarmed with tiny little humans, dragonborn and more. A cacophany of noise and excitement as the little hands clamoured for the frozen treats. Brittney smiled as her tail whipped behind her, the tiefling looking perfectly comfortable with so many adoring kids clamouring for the truck, "Alright, alright... one as a time now... one at a--" one of the kids knocked the cart, causing Britt to huff in a lungful of air and yell
+
+## "ONE AT A TIME YOU LITTLE SHITS!!"
+
+The whip crack of her voice almost shaking some of the surrounding houses apart. All of the surrounding noise stopped. Clara giggled from the sight of the stunned expressions of the children.
+
+Their eyes met in that moment and Britt's tail straightened in surprise. "Claaraa!" Whipping her head around to Tedac, the old firbolg's round cheeks lifted in a smile and he nodded gently, causing Britt to yank off her apron and skip through the crowd to meet her friend.
+
+Britt threw her arms around Clara warmly and the two shared an embrace as they squeezed in a tight hug. "It's good to see you, Brittney," Clara said softly.
+
+Brittney stood back and petted down Clara's shoulders, looking at her from head to toe, "And what about you? Hmm? Out of the house again? That's a cute coat, where have you been hiding this one?"
+
+Ever since the trial under the ocean, Brittney's unwavering positivity was one of the things that brought Clara through her darkest thoughts. Even through the explosion, it was Brittney's music that Clara heard above the cacophany of panic and pain, it was Brittney's music that made her sing. "I can't seem to stay in my room these days..." Clara responded simply.
+
+Brittney's head turned slightly, the tiefling's demonic eye seeming to stare right through her, "So are you ready to give us a song? I'm sure the kids would love to hear you play 'Drunk Dwarf Derringer'."
+
+Clara giggled softly at Britt's mannerisms, but shook her head, "I think I'll be ready soon... Ashna's fortune this morning had a violin again..."
+
+"Huh..." Britt's face furrowed as she clicked her tongue, "We finally get one girl out of her room, and the other one hides away... what is *with* you people?" Clara smiled in response, causing Britt to start peppering questions, "So, Ashna pulled the violin card for you again? Have you managed to pick it up or is it still locked away? Is your governess still giving you trouble? What's going on with you and Moidren?"
+
+Moments melted into hours as they talked. Meandering through Alcazar, the wardens seemed lost in conversations and memories. They spoke of Meilin, who was on a training mission in Lelenaes Aiqua, they spoke of Ashna and Marcus and each other. The one conversation topic they delicately avoided was their friend Tiv. 
+
+As they rounded a corner, Clara's attention was caught by a flash of light hitting her eye. Looking down towards an alley, she smiled softly. "Ah... I have to go,"
+
+"You're with Marcus again?" Britt asked in a soft whisper, to which Clara nodded. 
+
+Clara stepped forward to hug her friend, "I love you, Brittney,"
+
+Petting her back warmly, Brittney responded, "I love you too, sweetheart."
 
