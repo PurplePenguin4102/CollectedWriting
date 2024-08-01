@@ -156,7 +156,7 @@ Ashna looked up towards Clara, "What do you think the difference is, between a w
 
 Clara turned around, thinking about the question for a moment, "Uhm... wasn't that a topic in Faustus' Tome of Demonic Summoning?" Referring to a book they'd read together in getting their magic licenses.
 
-Ashna chuffed, her tail making a long swish to smash against the leg of her table, "That dry old text barely said anything. It was all descriptions of Weavic Interference, not real, nothing about how it /felt/ to channel demonic energy, or another entity's energy. I want to hear it from someone who actually does it. How do you break the rules, Clara? How do you do magic without actually doing magic?"
+Ashna chuffed, her tail making a long swish to smash against the leg of her table, "That dry old text barely said anything. It was all descriptions of Weavic Interference, not real, nothing about how it /felt/ to channel abyssal energy, or another entity's energy. I want to hear it from someone who actually does it. How do you break the rules, Clara? How do you do magic without actually doing magic?"
 
 Clara leaned back against the window, turning her head to gaze across the arcane scribblings that were sprawled across the wall. She recognised some of the wizardry that was there, but most of it was beyond her. "Well... put simply, I don't. My lady Titania came to me because I couldn't do magic... the weave doesn't listen to me, no matter how much I focus or how I move my hands."
 
@@ -214,11 +214,11 @@ Brittney stood back and petted down Clara's shoulders, looking at her from head 
 
 Ever since the trial under the ocean, Brittney's unwavering positivity was one of the things that brought Clara through her darkest thoughts. Even through the explosion, it was Brittney's music that Clara heard above the cacophany of panic and pain, it was Brittney's music that made her sing. "I can't seem to stay in my room these days..." Clara responded simply.
 
-Brittney's head turned slightly, the tiefling's demonic eye seeming to stare right through her, "So are you ready to give us a song? I'm sure the kids would love to hear you play 'Drunk Dwarf Derringer'."
+Brittney's head turned slightly, the tiefling's devilish eye seeming to stare right through her, "So are you ready to give us a song? I'm sure the kids would love to hear you play 'Drunk Dwarf Derringer'."
 
 Clara giggled softly at Britt's mannerisms, but shook her head, "I think I'll be ready soon... Ashna's fortune this morning had a violin again..."
 
-"Huh..." Britt's face furrowed as she clicked her tongue, "We finally get one girl out of her room, and the other one hides away... what is *with* you people?" Clara smiled in response, causing Britt to start peppering questions, "So, Ashna pulled the violin card for you again? Have you managed to pick it up or is it still locked away? Is your governess still giving you trouble? What's going on with you and Moidren?"
+"Huh..." Britt's face furrowed as she clicked her tongue, "We finally get one girl out of her room, and the other one hides away... what is *with* you people?" Clara smiled in response, causing Britt to start peppering questions, "So, Ashna pulled the violin card for you again? Have you managed to pick it up or is it still locked away? Is your governess still giving you trouble? What's going on with you and Moidren lately?"
 
 Moments melted into hours as they talked. Meandering through Alcazar, the wardens seemed lost in conversations and memories. They spoke of Meilin, who was on a training mission in Lelenaes Aiqua, they spoke of Ashna and Marcus and each other. The one conversation topic they delicately avoided was their friend Tiv. 
 
@@ -226,7 +226,180 @@ As they rounded a corner, Clara's attention was caught by a flash of light hitti
 
 "You're with Marcus again?" Britt asked in a soft whisper, to which Clara nodded. 
 
+"You can come if you like..." Clara said.
+
+Brittney shook her head slowly, "I'd rather hand out icecream to kids right now than run around beating them up."
+
 Clara stepped forward to hug her friend, "I love you, Brittney,"
 
 Petting her back warmly, Brittney responded, "I love you too, sweetheart."
 
+The alley was formed between two of the shanty buildings in Alcazar. Their sidings used to be from armor plating on the hull of an army supply ship. The towering sheets of rusted metal dwarfing the little pink haired girl, and the tall, shadowy figure she was approaching. "I got your things..." Marcus said simply, unhooking his shoulder bag and putting it on the ground between them. "I'll watch out while you get changed."
+
+Clara smiled up at him, but his unsmiling eyes stared back. Marcus had taken the events of the explosion to the chest, and he wasn't ready to smile yet. Clara took the bag quietly and removed the contents. Clothing. Black leather jherkin, form fitting breeches and a black sleeved tunic. Clara strapped her chest before she got dressed. Tying up her hair into a hive and hiding it under a black hood. When she was ready, her black apparel matched the much larger lad next to her. "Don't forget your handkerchief," Marcus said quietly, handing her a large piece of cloth that she tied across her mouth and nose.
+
+It was all well and good for Marcus to go outside of the guards' remit. Nobody would question the adopted son of lady Gylden, former urchin and ruffian for being nosy around the docks. For Clara though, matters of identity were far more concerning. Nevertheless, Marcus covered his identity too, not wanting to bring shame to either the town guard or his adopted family. The black hooded pair snaked through the winding passages of Alcazar together. Silently.
+
+Things had been quieter since the first couple of weeks of the disaster, but they were by no means calm. Lady Esmerelda's guard were busy with relief efforts, and couldn't attend to simple policing duties on the dockside. Moreover, while most people of Gylden were warm of heart when it came to the disaster, rats always seemed to rise to the smell of opportunity.
+
+With Marcus leading the way, the pair made their way through Alcazar and towards the dockside. They had been monitoring shipments of food and construction materials for the last two weeks. Large portions of cargo were going missing. With no obvious explanation, the only readily available culprits belonged to the feywild. This made Marcus' instincts go wild, both as a street rat, and as a town guard. 
+
+The black hooded pair wound up perched on a rooftop overlooking the dock workers. Eagle eyes flickering over the meandering people down below. With every minor disturbance, one of them would snap their head to see. The vantage point they used was one that Veda had told them about. Allowing almost perfect monitoring of the north dock. They could see the expressions of the workmen, even smell the aroma of their sweat as they hauled from the ship.
+
+Minutes passed to an hour, which passed to two. The workers changed shifts and Clara shifted uncomfortably. Marcus finally broke the silence, "The snake rose tattoos aren't here today..."
+
+Clara sighed and nodded, leaning against the facade of the roof. "So weird..." she panned across the crowd, "Who were those men, then? They had to be foreigners. I didn't recognise any of them."
+
+"... and you've got a good memory for faces," he finished.
+
+The only lead other than pixies for the missing supplies were a gang of workers that all bore snakes and roses on their shoulders. Matching tattoos were often a sign of brotherhood on long voyages for ship crews, not to mention undesirables. "Is it a dead end..?"
+
+Marcus shook his head, "Wood doesn't just grow legs and walk off... somebody knows what happened to that shipment, and there are families that need homes."
+
+Clara nodded softly. There was little else said between them as the sun made its way across the sky. At the last bell, the workmen cheered and hollered, their work song changing to a drinking song as the crowd of men jostled and clapped each other across the back. Clara rubbed the back of her neck, only to feel strong, rough knuckles pushing against her spine, "Mm!" she shivered from the sensation as her muscles unknotted.
+
+"When you sit still too long you get stiff..." Marcus said simply, massaging her back.
+
+She turned to him, and smiled underneath the handkerchief, "Well I was planning on getting some exercise... but the baddies didn't show up."
+
+"... lucky them..." he said thoughtfully. "You probably would have blown them to pieces."
+
+Making their way off the roof, the pair picked their way back to Alcazar, and disappeared into the winding alleyways of the shanty town. Going to where they'd stashed Clara's clothes, Marcus once again stood watch while Clara transformed herself from a hooded vigilante and back into a woman. Emerging from the alley, she offered the bag of clothes to Marcus, who took it and strapped it across his broad shoulder. Reaching up as he took the bag, Clara softly cupped his left cheek and smiled into his expression. "You're still having trouble smiling,"
+
+His expression softened. Unable to remain stern with Clara so close to him, "The anger hasn't left me yet..."
+
+Clara smiled softly, her hand lifting from his cheek, "It will... you saw how I was a few nights after..."
+
+He thought back to a moment, finding Clara in a clearing by herself. A tear-streaked face as her blones creaked and crackled from eldritch energy. She'd been casting eldritch blast at a tree over and over again, as if that tree were the devil itself. The bark on the outside of it crackled to black ash as the wood stubbornly stood tall. She said later that she lost count how many times she'd slammed her blast into it, casting the cantrip over five hundred times.
+
+"How are you dealing with it?" he asked in the present. 
+
+Clara tucked her chin down. The question was deep, and it made her ruminate for a moment. "...maybe because I was already angry. About the stupid sea elf trial." Her eyes searched the ground between them for the answer as her head lowered. "I was angry at myself, and the world, and everything... and it didn't really help anyone. And when I saw everyone in pain..." she looked back up at him, her thought cut in the mniddle,  "... it still doesn't feel real... does it?" Marcus shook his head in agreement. Clara continued, "... anyway. If I want to be angry, I know who to be angry at," she looked him in the eye, "No man is responsible for this... for any of this. No man except for Ben Goldbleed." She reached out to take his hands, holding them softly in her own, "And if I want to smile, and want to feel love and warmth and happiness, then I know who to smile at," her smile crept slowly across her face. "My friends. The wardens of Masacoll."
+
+After a moment, Marcus nodded softly, and soon found himself embracing the small girl. "Maybe I'll learn how to smile again too..."
+
+Clara smiled into his chest and squeezed tightly, "You will..." before letting go and turning to leave she said, "I love you, Marcus."
+
+"Love you too, Clara," he said simply. Before she left his sight, he raised his voice, "How are you going with violin?"
+
+She stopped in her tracks and turned, "Oh... Getting closer... I wanted to try again tonight. Ashna pulled the third violin in a row for me today."
+
+He nodded softly, "Well, good luck then. You'll get it soon."
+
+On her way home, she walked past the Gylden Crater once more. The noise from the workmen had shifted from the sounds of hoists and coordination to the sound of drinking and cameraderie. The sun hung wide and low on the horizon, casting a dramatic spread of orange and red across the sky. The distant sound of the sea washing over her ears, and the squawking song of seagulls reaching her. As she listened to the soundscape before her, she found herself humming quietly, a melody that rose and fell with a soft, whispering voice.
+
+Moving down the street, she made for her final destination on that day. Tiv's place. Approaching the outside of the junkyard, Clara looked up at the pile of scrap, old ship parts and sheet metal that made up the kobold's humble home. Townspeople walking past behind her, and the sound of  ahorse cab clopping over the street drummed against her ears. 
+
+Clara's ears were sensitive in this moment. If she strained, she could hear a breath, a cough, an insect's wings, her own heartbeat. She felt her cheeks getting warm, and her breath started to get caught in her throat. A small squeak escaped her throat and she wiped her face, trying to compose herself from crying. 
+
+Clara could hear everything. But the one thing she'd never hear again was Tiv.
+
+Taking a moment, she sucked in air in large, thick gulps and looked up at the old junkyard. The lifeless pile of leftovers held a special place in her heart. Remembering all the hideouts and games the wardens would play together. She remembered nursing Tiv's egg with Ashna. Scolding Marcus when he got himself hurt. Eating sweets with Brittney, and bringing extra for Meilin. So many little moments that existed in her heart.
+
+The flutter of wings caught her attention as Quesoraxia alighted on her shoulder. The small pixie girl with insect wings was as light as a feather and could fit on her palm. Clara turned her head slightly as she felt her fairy friend coming to greet her. Likewise, arriving from a disc of swirling light that seemed impossibly thin, Spot arrived. His gleaming diamond scales glistening in the gloaming sunset light. The moments of purple twilight was always the time of day when the mortal realm had the most affinity with the land of witches and the wilds of the fey.
+
+Her eyes adjusting to the fading light, the lights of the fey began to surround her, and those that were onece indistinguishable as humans shed their disguises for those who were trained to see it. A mother escorting her children soon grew smart and long rabbit ears, the harengon scolding her little ones for being tardy. The irish drunk growing rounder and stouter, the leprechaun's hiccups singing loudly with his soft chuckling. 
+
+"There are more than normal..." Clara whispered to the pixie on her shoulder. The fey creatures of winter and wonder had slowly but surely gathered at Tiv's junkyard.
+
+"They want to hear you play, Clara..." she said simply. There was an edge to her words, as their old arguments echoed in her mind.
+
+"I forgot my violin." Clara spoke with a soft finality. After a time, as she saw sprites, spriggans and mufflewumps appearing from the junkyard and around her, Clara raised her voice, "Tell your stupid queen I'm not playing!! I'm not playing, I won't play, And you can't make me!!" As she yelled she stomped her foot petulantly and pursed her lips.
+
+Reacting to her outburst, pixies were pushed away from her, the harengon's ears startled and stared in her direction, the leprechaun almost rolled over and the mufflewump's big fluffy ears folded in as it covered it's eyes. It was only momentary, however, as the fey slowly returned to their naturally curious and playful demeanour.
+
+Quesoraxia lifted her tiny hand, and Clara felt her tiny fingers scratching behind her ear affectionately. "I know it still hurts Clara..." to which Clara nodded as she watched the fey skipping about their business. "You don't have to do anything you don't want to."
+
+There was the sound of a combined, unearthly growl. Clara recognised the warning and hissing of a Blinkdog, and felt Spot hissing from her ankles. A deep, abyssal voice intoned, "Ahh, but is that true, little pixie?" Yarlin's thrumming baritone was next to her. The skin on her cheek felt warm from the black hot glow of his leathery, red flesh. "After all, our beautiful, young musician here is under a contract."
+
+Quesoraxia flew away from Clara's shoulder, flitting backwards and forth aggressively, holding a sparkling little spear in her tiny arms. "Devil!" Along with Quesoraxia, the rest of the fey were starting to snark, scratch and click aggressively in the direction of the devil.
+
+Yarlin, ever the flirt, push his hands up in surrender and turned to show the creatures of the feywild that he was there in peace. "Please, please! Put your little bits and bobs away, faeries," a grin spread across his face, "I was invited."
+
+"By who!" Quesoraxia squeaked. 
+
+Yarlin unfurled a long, clawed finger and gestured to Clara's left. A sparking, spiralling song of harmony filled the air. The scents of fresh flowers filled the atmosphere around her, as her bright, cherry-pink hair tumbled down to her muddy, bare feet. Clad in a dress made from winter leaves, the pink-haired eladrin woman with eyes that sparkled like gemstones appeared next to her. "By me, my pixie." Titania, queen of the fae, had appeared in the flesh. 
+
+It wasn't ordinary for such godly beings to appear in the mortal realm, but as Clara looked around, she realised that there was very little of the mortal realm left in her surroundings. Long dais' holding important looking few were around her. Important and decorated members of the seelie court were staring at her with terrible, otherworldly gazes. Swirling purple mist and miasma whirled about the courtyard. The only beings out of place were herself, from the mortal realm and Yarlin, from the Nine Hells of Baator.
+
+Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy.
+
+"You stand before a tribunal of three," the bookish goblin spoke. "One fey, one abyssal, and one neutral adjudicator. Do you all accept the authority of this court? Any objections?"
+
+Clara looked up at the judges in quiet silence, and looked to Titania and Yarlin in turn. They remained quiet. Yarlin's respectful silence seemed strange to her, but she guessed this was part of his strategy.
+
+"Alright," the goblin adjusted his spectacles, and lifted a large sheet of paper, that almost seemed bigger than his head. The crinkling papers shuffled loudly. "We are here to settle the matter of the contract between Queen Titania of the Fey and her musician, the mortal violinist Clara Steibelt. Also here is a counter patron, the devil pirate Yarlin of Dis. Is this who you all are?" Yarlin and Titania nodded silently, and Clara remained quiet, feeling her fingers curl into a small ball.
+
+"As this is a fey contract..." the goblin judge continued, "by tradition, I, the fey judge will be asking the questions. Now my understanding is that Clara has refused to play her violin for more than six months?"
+
+"That is correct," Titania responded calmly.
+
+"And in exchange for her playing the violin she was supposed to have been awarded fey powers, is that correct?" His voice came out, biting the wind.
+
+"That is correct." Titania responded.
+
+The small goblin's brow furrowed and knitted. "And she was awarded her powers?"
+
+"Of course," Titania said simply.
+
+"Well what in the realms is the problem? How is there possibly a case? Are we here to transfer the contract? Are we just here to execute the punishment to recompense the contract?" The goblin swept his hand across the court. "Speak! The floor is open."
+
+Yarlin stepped forward, "The contract is voided, adjuntar," his infernal baritone raising. "Clara found the powers insufficient to protect her friend, Tiv, so she was not awarded enough power by the faerie queen."
+
+"What?!" The small goblin's spectacles almost fell from his nose as he jumped. "Erm... my queen... do you have a response?"
+
+Titania shook her head from side to side, silently. "It is as the devil said, mighty adjuntar," despite her voice being soft, the weight it carried was heavy in the air. "On this day, two months since, my dear sweet musician's friend met his demise at his own hands while protecting the city of Gylden. Because of this, the signee has not been able to emotionally bring herself to play music."
+
+"... and the four months previous?" The goblin scoured the sheet in front of him, as an overlarge quill scribbled notes next to him.
+
+Titania responded, "She was beset by a terrible depression. I allowed her the maximum possible extension, as stipulated in the contract, to ease her emotional distress." She took a small pause, clearing her throat, "Failing a sea elf trial in Lelenaes Aiqua was the cause. Again, she found the awarded powers insufficient."
+
+The Wrethed devil judge leaned forward, "Surely, Queen Titania, you're not suggesting to a court that represents powers of the cosmos that there was a circumstance where the power of the Feywild and the Seelie court were insufficient in tackling mortal affairs??"
+
+Titania turned, looking at Clara, and feeling a small smile stretch across her face. "If I may, adjuntar," she said slowly, "It is a rare talent I deal with, and a rare circumstance in which I find myself." Stepping forward, the queen gracefully took the floor of the court. "The whims and mores of fate seduced me towards making a pact with this young violinist, the mortal Clara Steibelt. The tenacity of her soul and the music of her heart enchanted me, as it enchanted my counterpart, Yarlin of Dis. Ordinarily, I would take this opportunity to argue the merits of my magic, to talk until I was blue in the face about duty, power, caveats and legal matters." Taking a pause, she looked up to address the panel of judges, with her hand swept backwards towards Clara. "But ultimately, doing so here would remove from the universe this girl's music. The very thing my contract was designed to protect. So if I must admit to the powers of the universe, that my powers failed at a critical moment, then that is what I shall do." A smile curled at the side of her lips, "Because it is a faerie's whim."
+
+The judges shared looks between them for a moment, before the goblin spoke, "Er... surely... my queen... there is a circumstance where Clara herself failed to apply her magic properly..?"
+
+Yarlin spoke, "The only possible solution, adjuntar, was for Clara to dominate the body of her friend so that his suicide was impossible. But this would have negated his free will, and thus his soul wouldn't have been sufficiently saved."
+
+"So there was a solution," the wretched devil sat forward. Yarlin and Titania assented. The devil spoke again, "And you are saying this solution was null, Queen Titania?" Titania assented. To this, the devil again sat back, and looked over to the other judges.
+
+The rumination of the judges was tense. The faeries that had gathered began to quietly chitter and scratch. Titania approached Clara again and gently rested her hand on her shoulder. A look between herself and Yarlin was shared, silent, complex emotions swirling between them. After half an hour passed, the goblin judge cleared his throat to silence the court.
+
+"Erm... while it is unusual," his voice boomed with an unnatural, innate power that shook the bones of all present, "it is not entirely unprecedented for both patron and signee to desire the termination of a warlock contract," as he fell silent, his eyes started to glow with an ethereal energy. The devil spoke next, with the same voice, "These contracts are enforced by a power higher than all beings, and judged by this court, which all beings in the cosmos recognise."
+
+Both the devil and the goblin spoke in unison. "In light of the circumstance. That both parties recognise the failure of the patron, Titania, to provide the power to protect the mortal life of the signee's beloved companion. This court has made the decision that the contract is not enforcible, and hence voided. All clauses are now null. All bindings between Titania, queen of the Fae and Clara Steibelt are broken, and neither is bound by any clause of the contract heresigned. Is this judgement understood?" The silence in the cosmic court was thick enough to cut. "So be it."
+
+Clara gasped as she felt the wind leave her lungs. A swirling pink and green cloud of energy being tugged from her soul as all her latent magical energy left her. The warlock contract was broken. Completely gone. Titania's magic no longer flowed in her veins, and her senses returned after a moment. 
+
+Blinking, Clara found herself once again staring at Tiv's junkyard. The sun had long set, and the black of evening was interrupted by small gaslit lanterns that lined the streen. The spires of sheet metal once again stretched into the sky. A voice to her side, "Miss? Miss?" Looking up, she saw the face of an enforcer she recognised.
+
+"Oh, hello Alec," she said sweetly.
+
+The enforcer tipped his head and shuffled awkwardly, "You've been staring at the yard now for the last couple hours, I reckon... are you okay?"
+
+Clara smiled, "Never better!" and sighed softly. "... someone just did me a big favour. Maybe one I'll never be able to repay..."
+
+Alec rubbed his helmet with a large, gauntleted hand, "Uhh... favour?"
+
+Clara nodded, and moved towards him, taking his elbow, "Won't you escort me home?"
+
+The young guard flinched as she took his elbow and stammered, "O-Of course Cl-Cl... Miss Steibelt."
+
+As they turned to leave, a tall, hooded figure stepped before them. Looking up to her, Clara immediately recognised the shadowed figure. Looking to Alec, she saw that his head was thrown back, and he was fast asleep in an enchanted slumber. "Titania..." she whispered.
+
+The faceless, shadowed figure stepped forward. "Excuse me for interrupting again, young Clara," 
+
+Clara tucked her chin slightly, "I can't believe... you broke it for me..."
+
+"I can't believe you played chicken with the cosmos," Titania's voice reverberated from the shadowed hood. Reaching into the folds of its cloak, the figure spoke, "A final gift from me," she said softly. "You're a rare mortal, Clara. The way your soul shines is unique in so many ways." From the folds of its cloak, Clara was presented with an old, intricately engraved, though elegantly plain cherrywood violin and bow.
+
+Clara reached out and took it, her hands trembling, "Truly... I thought I was going to die... is this... is..." Clara turned the fiddle over in her hand, inspecting the workmanship and quality. Her voice lost from surprise.
+
+Titania spoke, "... a violin. Crafted at my request by the pirate fiddler, Antonio Steibelt," she said simply, "A personal friend of mine, and your great grandfather. Using techniques only he knew, and wood supplied by the oldest woods of the feywild. Grown by spriggans and blessed by owlbears. From a wood that sings the songs of morning and whispers the hymns of night. Strung by silk of feyspider and played exclusively in my personal court."
+
+Clara's hands started trembling. The thing she was holding was beyond precious. Looking up, a silent question hung in her mind. Why?
+
+"Consider it a gift of goodwill, consider it an apology, consider it a parting gift or a way to honour the spirit of your friend. The fates are not finished toying with you, Clara, and seeing you succeed is of personal interest to me. Whether you like it or not, you still cannot channel magic yourself, and will need a patron for your upcoming trials. So, if it is your will, call to us again when you seek to draw on our power and we will give you gifts untold as we dance gaily to your music. Or, sign your soul to Yarlin and take him as your lover, wrap him around your finger and suck his magic dry. As a font of power, there are many patrons who will be keen to court you. In any case, for tonight, play for your father, and rediscover your music." Titania's voice giggled sweetly as the shadowy figure sucked into itself and vanished. A small whisper in the air, "As I said when we first met, Clara. A woman ought to have choices, wouldn't you say?"
+
+Clara felt herself smile softly, as she clutched the old violin to her chest. "Pink haired bitch..."
