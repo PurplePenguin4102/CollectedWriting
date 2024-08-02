@@ -254,7 +254,7 @@ Clara sighed and nodded, leaning against the facade of the roof. "So weird..." s
 
 The only lead other than pixies for the missing supplies were a gang of workers that all bore snakes and roses on their shoulders. Matching tattoos were often a sign of brotherhood on long voyages for ship crews, not to mention undesirables. "Is it a dead end..?"
 
-Marcus shook his head, "Wood doesn't just grow legs and walk off... somebody knows what happened to that shipment, and there are families that need homes."
+Marcus shook his head, "Wood doesn't just grow legs and walk off... somebody knows what happened to that shipment from Theylanar, and there are families that need homes."
 
 Clara nodded softly. There was little else said between them as the sun made its way across the sky. At the last bell, the workmen cheered and hollered, their work song changing to a drinking song as the crowd of men jostled and clapped each other across the back. Clara rubbed the back of her neck, only to feel strong, rough knuckles pushing against her spine, "Mm!" she shivered from the sensation as her muscles unknotted.
 
@@ -270,11 +270,11 @@ His expression softened. Unable to remain stern with Clara so close to him, "The
 
 Clara smiled softly, her hand lifting from his cheek, "It will... you saw how I was a few nights after..."
 
-He thought back to a moment, finding Clara in a clearing by herself. A tear-streaked face as her blones creaked and crackled from eldritch energy. She'd been casting eldritch blast at a tree over and over again, as if that tree were the devil itself. The bark on the outside of it crackled to black ash as the wood stubbornly stood tall. She said later that she lost count how many times she'd slammed her blast into it, casting the cantrip over five hundred times.
+He thought back to a moment soon after the explosion, finding Clara in a clearing by herself. A tear-streaked face as her bones creaked and crackled from eldritch energy. She'd been casting eldritch blast at a tree over and over again, as if that tree were the devil itself. The bark on the outside of it crackled to black ash as the wood stubbornly stood tall. She said later that she lost count how many times she'd slammed her blast into it, casting the cantrip until her fingers burned.
 
 "How are you dealing with it?" he asked in the present. 
 
-Clara tucked her chin down. The question was deep, and it made her ruminate for a moment. "...maybe because I was already angry. About the stupid sea elf trial." Her eyes searched the ground between them for the answer as her head lowered. "I was angry at myself, and the world, and everything... and it didn't really help anyone. And when I saw everyone in pain..." she looked back up at him, her thought cut in the mniddle,  "... it still doesn't feel real... does it?" Marcus shook his head in agreement. Clara continued, "... anyway. If I want to be angry, I know who to be angry at," she looked him in the eye, "No man is responsible for this... for any of this. No man except for Ben Goldbleed." She reached out to take his hands, holding them softly in her own, "And if I want to smile, and want to feel love and warmth and happiness, then I know who to smile at," her smile crept slowly across her face. "My friends. The wardens of Masacoll."
+Clara tucked her chin down. The question was deep, and it made her ruminate for a moment. "...maybe because I was already angry. About the stupid sea elf trial." Her eyes searched the ground between them for the answer as her head lowered. "I was angry at myself, and the world, and everything... and it didn't really help anyone. And when I saw everyone in pain..." she looked back up at him, her thought cut in the middle,  "... it still doesn't feel real... does it?" Marcus shook his head in agreement. Clara continued, "... anyway. If I want to be angry, I know who to be angry at," she looked him in the eye, "No man is responsible for this... for any of this. No man except for Ben Goldbleed." She reached out to take his hands, holding them softly in her own, "And if I want to smile, and want to feel love and warmth and happiness, then I know who to smile at," her smile crept slowly across her face. "My friends. The wardens of Masacoll."
 
 After a moment, Marcus nodded softly, and soon found himself embracing the small girl. "Maybe I'll learn how to smile again too..."
 
@@ -302,7 +302,7 @@ Her eyes adjusting to the fading light, the lights of the fey began to surround 
 
 "There are more than normal..." Clara whispered to the pixie on her shoulder. The fey creatures of winter and wonder had slowly but surely gathered at Tiv's junkyard.
 
-"They want to hear you play, Clara..." she said simply. There was an edge to her words, as their old arguments echoed in her mind.
+"They want to hear you play, Clara..." she said simply. There was an edge to her words, perhaps a sense of concerned urgency.
 
 "I forgot my violin." Clara spoke with a soft finality. After a time, as she saw sprites, spriggans and mufflewumps appearing from the junkyard and around her, Clara raised her voice, "Tell your stupid queen I'm not playing!! I'm not playing, I won't play, And you can't make me!!" As she yelled she stomped her foot petulantly and pursed her lips.
 
@@ -320,9 +320,15 @@ Yarlin, ever the flirt, push his hands up in surrender and turned to show the cr
 
 Yarlin unfurled a long, clawed finger and gestured to Clara's left. A sparking, spiralling song of harmony filled the air. The scents of fresh flowers filled the atmosphere around her, as her bright, cherry-pink hair tumbled down to her muddy, bare feet. Clad in a dress made from winter leaves, the pink-haired eladrin woman with eyes that sparkled like gemstones appeared next to her. "By me, my pixie." Titania, queen of the fae, had appeared in the flesh. 
 
+Titania looked as regal as she ever did, even with her unconventional garments. She was impossibly beautiful, and her presence seemed to make the very air vibrate in celebration. "Have you prepared yourself, my darling captain? Clara?"
+
+Clara nodded quietly, and Yarlin scoffed, "Belive me, this will be a pleasure..."
+
+Titania sighed slowly, "Warlock contracts are enforced at a much higher court than either of us, devil. Be careful what you wish for..."
+
 It wasn't ordinary for such godly beings to appear in the mortal realm, but as Clara looked around, she realised that there was very little of the mortal realm left in her surroundings. Long dais' holding important looking fey were around her. Important and decorated members of the seelie court were staring at her with terrible, otherworldly gazes. Swirling purple mists and miasma whirled about the courtyard. The only beings out of place were herself, from the mortal realm and Yarlin, from the Nine Hells of Baator.
 
-Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy. The ancient symbol of Ao decorated the benches.
+Across from where Clara stood alongside Yarlin and Titania, were three large, wooden benches. Behind these benches were three creatures, on the left a small, bespectacled fey creature with a long nose, that Clara recognised as some form of bookish goblin. On the right was a bored looking, pale-skinned devil that she knew as a Wretch. In the middle was a creature with no distinct form, a swirling cloud of ancient energy. The ancient symbol of Ao, overgod of the cosmos, decorated the benches.
 
 "You stand before a tribunal of three," the bookish goblin spoke. "One fey, one abyssal, and one neutral adjudicator. Do you all accept the authority of this court? Any objections?"
 
